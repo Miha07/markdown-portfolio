@@ -1,1 +1,1 @@
-[Social profile] (https://www.instagram.com/miha47__/)
+[Social profile](https://www.instagram.com/miha47__/)
